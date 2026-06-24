@@ -1,4 +1,3 @@
 # taib
 diopugx
-s
 thdz
