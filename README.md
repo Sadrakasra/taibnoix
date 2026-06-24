@@ -1,3 +1,3 @@
 # taibnoix
-dioppxc2
+dioppx
 sfdg
