@@ -6,6 +6,6 @@ mfng,jG87EI r
 m jukgfjap[elojfae b,./zdfjkhncxbs
  fniopfkalvklikb fknuilgloyfkmf  
   lr;joh
-   klfdhiohn ff fgekoi
+   klfdhiohn ff fgek
     . fihfv  f vmnkuige
     nf
