@@ -2,8 +2,7 @@
 diopugx
 thht
 ygvhjnkb 
-mfng,jG87EI r
-m jukgfjaplojfae b,./zdfjkhn
+mfng,jG87EI rkhn
  fniopfkalvklifknuilgloy
   l
    klfdhiohn ff fgek
