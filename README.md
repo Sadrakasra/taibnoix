@@ -1,7 +1,7 @@
 # taib
 diopugx
 thht
-mfng,jG87E
+mfng,jG87
  fniopfkalvklifknuilgloy
-   klfdhiohn ff fg
+   klfdhiohn ff f
     .
